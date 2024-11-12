@@ -1,0 +1,1 @@
+Pagina del store de Amanecer, dedicada a la venta de ropa con estampados personalizados.-
